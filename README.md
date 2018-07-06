@@ -87,14 +87,14 @@ if you want to know more [click here](https://en.wikipedia.org/wiki/Andalusian_h
 
 if you want to know more [click here](https://en.wikipedia.org/wiki/Marwari_horse)
 
-![image](
+![image](https://www.hindustantimes.com/rf/image_size_640x362/HT/p2/2016/09/15/Pictures/marwari-horse-photo-ht_c704dbb4-7b5e-11e6-9f8c-92f0a5be7f74.jpg)
 
 ---
 
 ## Kathiawari Horse
 ### Kathiawari Horse are very much similar to Marwari horse in appearance with curved ears but smaller then Marwari and used as a police horse. The Kathiawari are most commonly found in all colours, most commonly chestnut and Marwari horse is usually black.
 
-if you want to know more [click here]
+if you want to know more [click here](https://en.wikipedia.org/wiki/Kathiawari_(horse))
 
 ![image]
 
