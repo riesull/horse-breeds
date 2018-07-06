@@ -4,20 +4,36 @@
 ## Arabian
 #### Arabian Horse are most popular horse breeds in the world and known for its distinctive head shape, height and high tail. Their land of origin is the Middle East but now found across the United States, United Kingdom, South America, Australia and continental Europe.
 
+if you want to know more [click here](https://en.wikipedia.org/wiki/Arabian_horse)
+
+![image of arabian](https://qph.fs.quoracdn.net/main-qimg-b706e90605a08d8d102e96b18edd25ee-c)
+
 ---
 
 ## Thoroughbred
 #### Thoroughbred horse breed is very much famous for its intelligence, speed and spirit. The hot blooded horse from England was developed from crossbred of native Mare with Arabian, Barb and Turkoman Stallion.
+
+if you want to know more [click here](https://en.wikipedia.org/wiki/Thoroughbred)
+
+![image](https://i.ytimg.com/vi/aKau81pUHo8/maxresdefault.jpg)
 
 ---
 
 ## Standardbred
 #### Standardbred is a harness racing American horse breed and also used for a variety of equestrian activities. Standardbred horse are known for their speed, used in horse shows, pleasure riding and quite good at jumping.
 
+if you want to know more [click here](https://en.wikipedia.org/wiki/Standardbred)
+
+![image](https://i.pinimg.com/originals/3d/81/f6/3d81f6f28adff21417c6f68b32eee138.jpg)
+
 ---
 
 ## Morgan Horse
 #### Morgan Horse developed in the United States and also used for harness racing as well as cavalry horses. The Morgan breed is known for its versatility and as an easy keeper.
+
+if you want to know more [click here](https://en.wikipedia.org/wiki/Morgan_horse)
+
+![image](http://mhaostallionserviceauction.com/images/700_Gladheart_Black_Harris_1.jpg)
 
 ---
 
