@@ -96,16 +96,16 @@ if you want to know more [click here](https://en.wikipedia.org/wiki/Marwari_hors
 
 if you want to know more [click here](https://en.wikipedia.org/wiki/Kathiawari_(horse))
 
-![image]
+![image](http://www.globetrotting.com.au/wp-content/uploads/2017/10/Kathiawari-horse-main-image_pinterest-1024x695.jpg)
 
 ---
 
 ## Tennessee Walking Horse
 #### Tennessee Walking Horse are one of the most famous riding horse in the southern United States and very much popular as a pleasure and trail riding horse along with its running walk.
 
-if you want ot know more [click here]
+if you want ot know more [click here](https://en.wikipedia.org/wiki/Tennessee_Walking_Horse)
 
-![image]
+![image](https://www.horseguard.com/wp-content/uploads/2015/10/10.14_tennessee_walker.jpg)
 
 
 ---
@@ -113,45 +113,45 @@ if you want ot know more [click here]
 ## American Saddlebred
 #### American Saddlebred horse best known for their sense of presence, style and called as peacock of the horse world. The American Saddlebred mostly used in harness, combined driving, endurance riding and show jumping.
 
-if you want to know more [click here]
+if you want to know more [click here](https://en.wikipedia.org/wiki/American_Saddlebred)
 
-![image]
+![image](http://cdn0.wideopenpets.com/wp-content/uploads/2017/03/c051a8a7b261551877289b33fb5cd866.jpeg)
 
 ---
 
 ## Shire Horse
 #### Shire Horse from United Kingdom the largest horse and the tallest horse in the world. They generally preferred for working horses and used for commercial promotion because of feathering.
 
-if you want to know more [click here]
+if you want to know more [click here](https://en.wikipedia.org/wiki/Shire_horse)
 
-![image]
+![image](https://www.pets4homes.co.uk/images/breeds/345/large/aa11fe413b82ffdb255d7c5fd8b267a8.jpg)
 
 ---
 
 ## Clydesdale Horse
 #### Clydesdale Horse from Scotland was originally used for draught purposesa and agriculture. The Clydesdale have used in the Budweiser commercials and known for its unique appearance and strength.
 
-if you want to know more [click here]
+if you want to know more [click here](https://en.wikipedia.org/wiki/Clydesdale_horse)
 
-![image]
+![image](https://acclaimperformancehorses.com/images/pictures_of_a_clydesdale_horse_7700.jpg)
 
 ---
 
 ## Akhal Teke
 #### Akhal Teke horse breed from Turkmenistan are also nicknamed “Golden Horses” and best known for speed, endurance and intelligence. The Akhal Teke horse can be used as sport horse, racing, show jumping and endurance riding.
 
-if you want to know more [click here]
+if you want to know more [click here](https://en.wikipedia.org/wiki/Akhal-Teke)
 
-![image]
+![image](https://upload.wikimedia.org/wikipedia/commons/8/83/Dagat-Geli.jpg)
 
 ---
 
 ## Gypsy Horse
 #### Gypsy Horse breed designed for strength, courage, power and has distinct gaits. The Gypsy horse from British Isles used to pull the tradesman’s cart, Caravans and Romani wagon.
 
-if you want to know more [click here]
+if you want to know more [click here](https://en.wikipedia.org/wiki/Gypsy_horse)
 
-![image]
+![image](https://horsej-intellectsolutio.netdna-ssl.com/cdn/farfuture/tsgl2zV9mJOvPPLCe5b0k5TMAY_YHTZQtXvm19KFA1s/mtime:1493806580/files/styles/article_large/public/pictures-videos/articles/Aiden15-Gypsy%20COB.jpg?itok=iqet8k5o)
 
 ---
 
