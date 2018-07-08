@@ -158,18 +158,18 @@ if you want to know more [click here](https://en.wikipedia.org/wiki/Gypsy_horse)
 ## Haflinger
 #### Haflinger breed of horse from Austria are versatile enough to found all over the world. Haflingers breed is used in many activities such as endurance riding and dressage.
 
-if you want to know more [click here]
+if you want to know more [click here](https://en.wikipedia.org/wiki/Haflinger)
 
-![image]
+![image](https://upload.wikimedia.org/wikipedia/commons/6/62/Haflinger_Deckhengst_Fohlenhof_Ebbs_3.JPG)
 
 ---
 
 ## Mongolian Horse
 #### Mongolian Horse are real horses, not ponies, found in the cold desert of Mongolia and used by Nomads. Mongol horses are best known for their role with Genghis Khan.
 
-if you want to know more [click here]
+if you want to know more [click here](https://en.wikipedia.org/wiki/Mongolian_horse)
 
-![image]
+![image](http://www.horsebreedspictures.com/wp-content/uploads/2015/09/Mongolian-Horses.jpg)
 
 ---
 
@@ -177,9 +177,9 @@ if you want to know more [click here]
 ## Miniature Horse
 #### Miniature horses are very small and friendly, kept as family pets and found in Europe and the Americas. They are used as companion animals and part of the many horse shows in the world.
 
-if you want to know more [click here]
+if you want to know more [click here](https://en.wikipedia.org/wiki/Miniature_horse)
 
-![image]
+![image](https://img.equinenow.com/slir/w1200/equine/data/farms/114644_1.jpg%3F1510800490)
 
 ---
 
