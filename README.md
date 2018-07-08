@@ -184,40 +184,22 @@ if you want to know more [click here](https://en.wikipedia.org/wiki/Miniature_ho
 ---
 
 ### Other popular horse breeds found across the world also include...
-Belgian Horse
-![image]
-Hanoverian horse
-![image]
-Australian Stock Horse
-![image]
-Knabstrupper
-![image]
-Trakehner
-![image]
-Percheron and Black Forest Horse
-![image]
-Selle Francais
-![image]
-Oldenburg horse
-![image]
-Dutch Warmblood
-![image]
-Cleveland Bay
-![image]
-Holsteiner
-![image]
-Missouri Fox Trotter
-![image]
-Lusitano
-![image]
-Icelandic horse
-![image]
-Lipizzan
-![image]
-Rocky Mountain Horse
-![image]
-Peruvian Paso and Paso Fino
-![image]
+Belgian Horse,
+Hanoverian horse,
+Australian Stock Horse,
+Knabstrupper,
+Trakehner,
+Percheron and Black Forest Horse,
+Selle Francais,
+Oldenburg horse,
+Dutch Warmblood,
+Cleveland Bay,
+Holsteiner,
+Missouri Fox Trotter,
+Lusitano,
+Icelandic horse,
+Lipizzan,
+Rocky Mountain Horse,
+and Peruvian Paso and Paso Fino.
 
-
-
+### refrances- all links are from wikipedia 
